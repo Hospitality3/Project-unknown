@@ -1,12 +1,12 @@
->Chapter 1: The Flowerbed Squadron's Rebellion
 ##### Глава 1: Сопротивление Эскадрильи Клумб. 
+>Chapter 1: The Flowerbed Squadron's Rebellion
 
->The river Shire flows through the center of Lutèce, the capital city of the Kingdom of Gallia…….
 ##### Река Шир протекает через центр Лютеции, столицы королевства Галлии.
+>The river Shire flows through the center of Lutèce, the capital city of the Kingdom of Gallia…….
 
+##### От центра города, известного как - старый город, который был развит вдоль берега реки расширивший улицу Бонфан, вдоль которой  требовалось 30 минут верхом на лошади, чтобы добраться до столичных окрайн.
 >From the center of the city which was known as the old town that was developed along the riverbank extended Bonfan Street, along which it would take thirty minutes by horseback to reach the capital outskirts.
 
-##### От центра города, известного как - старый город, который был развит вдоль берега реки расширяя улицу Бонфан, вдоль которой требовалось 30 минут, чтобы добраться до столичных окрайн.
 
 There the street was interrupted, and instead there was a long wall that stretched seemingly endlessly. Even at high noon the appearance of a section of this wall was unmatched.
 
