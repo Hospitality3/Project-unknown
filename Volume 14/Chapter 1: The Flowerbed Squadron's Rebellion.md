@@ -4,7 +4,7 @@
 ##### Река Шир протекает через центр Лютеции, столицы королевства Галлии.
 >The river Shire flows through the center of Lutèce, the capital city of the Kingdom of Gallia…….
 
-##### От центра города, известного как - старый город, который был развит вдоль берега реки расширивший улицу Бонфан, вдоль которой  требовалось 30 минут верхом на лошади, чтобы добраться до столичных окрайн.
+##### От центра города, известного как - старый город, который был развит вдоль берега реки расширяющий улицу Бонфан, вдоль которой  требовалось 30 минут верхом на лошади, чтобы добраться до столичных окрайн.
 >From the center of the city which was known as the old town that was developed along the riverbank extended Bonfan Street, along which it would take thirty minutes by horseback to reach the capital outskirts.
 
 
