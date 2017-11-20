@@ -8,8 +8,7 @@
 >From the center of the city which was known as the old town that was developed along the riverbank extended Bonfan Street, along which it would take thirty minutes by horseback to reach the capital outskirts.
 
 ##### Эта улица прерывалась, и вместо нее была длинная стена, вытянутая по видимому бесконечно. Даже в полдень, видимая часть этой стены была ни с чем не сравнима.
-There the street was interrupted, and instead there was a long wall that stretched seemingly endlessly. 
-Even at high noon the appearance of a section of this wall was unmatched.
+>There the street was interrupted, and instead there was a long wall that stretched seemingly endlessly. Even at high noon the appearance of a section of this wall was unmatched.
 
 As for what was on the other side of that long stone wall, that was the palace of Versailles where the Gallia royal family lived. As for why the palace had been built on the outskirts, one would understand if they saw the scale of it.
 
